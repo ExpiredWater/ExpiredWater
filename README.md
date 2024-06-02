@@ -1,4 +1,4 @@
-# Hi 👋, I'm @Expired Water
+# Hey there, I'm Expired Water
 
 
 
